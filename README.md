@@ -1,0 +1,1 @@
+![Screen to README.png](..%2F..%2F..%2FTextcodes%20copies%2FAutotesting_4.7%2FVebinar%20Screens%2FScreen%20to%20README.png)
